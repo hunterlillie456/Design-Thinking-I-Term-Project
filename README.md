@@ -1,0 +1,2 @@
+# Design-Thinking-I-Term-Project
+The objectives of this project are: 1. To promote group work and the sharing of ideas and tasks. 2. To promote life-long learning. 3. To empower students with the opportunity to realize that they are capable of attaining skill sets on their own with some effort. 4. To design and synthesize a challenge that requires putting together many of the concepts and elements learned throughout this semester.
